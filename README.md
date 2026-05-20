@@ -1,6 +1,6 @@
 `Do the thing. The future has already claimed you.`
 
-Hi I'm Ace Greenman. My family calls me Avi, past colleagues call me Charlie, but Ace, a nickname an old colleagure called me, has wedged itself in my mind. I am now thoroughly Ace. 
+Hi I'm Ace Greenman. My family calls me Avi, past colleagues call me Charlie, but Ace, a nickname an old colleague called me at a time I thought very little of myself, has wedged itself in my mind. I am now thoroughly Ace. 
 
 Beyond using github.com/agent-pattern-labs/JobForge to automate my job search(budget cuts for the 3rd time in 3 years shkoyach):
 

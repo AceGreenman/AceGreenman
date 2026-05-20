@@ -11,6 +11,7 @@ I am taking a break from human based social media(deleted most of them) and migh
 1. Managing relationships too difficult
 2. Too noisy and none of people in social or professional life on social media
 3. Quite often my posts did not get attention it deserved. That made me feel bad
+4. Too socially conscious of what I post might mean for business or professional relationships
 
 I have been much happier that way. I'd like to be a part of a future where social media mostly automated and as a society we get back to richer, more nuanced relationships.
 
